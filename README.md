@@ -1,3 +1,1 @@
-!! 𝚌𝚕𝚒𝚌𝚔 𝚏𝚘𝚛 carrd !! 
-
-[![doosio on deviantart](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e15a9051-e20c-467a-8375-90dee1a91fc4/df6pfrf-7062f924-e755-42f4-bec4-f63fe23b622d.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2UxNWE5MDUxLWUyMGMtNDY3YS04Mzc1LTkwZGVlMWE5MWZjNFwvZGY2cGZyZi03MDYyZjkyNC1lNzU1LTQyZjQtYmVjNC1mNjNmZTIzYjYyMmQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.VdnbyVfVTehqzeDcf67bshgnBxoqzogPM1EG876unJ4)](https://fuzzy-lynt.carrd.co/)
+might put my info here instead of a carrd
