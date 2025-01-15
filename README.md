@@ -27,5 +27,5 @@
 ♡ little speech quirks <br>
 ♡ pls communicate and ask before venting/ranting 
 
-### 𓊆:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅𓊇 feel free to interact! or don´t, we don´t care. \[AS\] 𓊆:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅𓊇
+### 𓊆:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅𓊇 feel free to interact! or don´t. we don´t care. \[AS\] 𓊆:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅𓊇
 𓆩♡𓆪 [my idiot](https://rentry.co/idolish7-lover) 𓆩♡𓆪
