@@ -17,7 +17,7 @@
 ♡ do not copy my skins 1:1! inspiration is fine, don´t be afraid to ask for guidance <br>
 
 ## other things 
-♡ [basic dni](https://dni-criteria.carrd.co/)
+♡ [basic dni](https://dni-criteria.carrd.co/) <br>
 ♡ no triggers, talk freely - fine with questions and flirting (if you´re an adult) <br>
 ♡ forgetful <br>
 ♡ little speech quirks <br>
