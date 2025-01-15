@@ -19,6 +19,7 @@
 ♡ do not copy my skins 1:1! inspiration is fine, don´t be afraid to ask for guidance <br>
 ♡ [commonly used abbreviations on pt](https://rentry.co/pt-abbreviations) <br>
 
+𓊆:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅𓊇
 ## other things 
 ♡ [basic dni](https://dni-criteria.carrd.co/) <br>
 ♡ no triggers, talk freely - fine with questions and flirting (if you´re an adult) <br>
