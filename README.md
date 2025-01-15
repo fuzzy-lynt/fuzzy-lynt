@@ -17,6 +17,7 @@
 ♡ different styles but i always have this github linked <br>
 ♡ mostly afk or offtab on pt <br>
 ♡ do not copy my skins 1:1! inspiration is fine, don´t be afraid to ask for guidance <br>
+♡ [commonly used abbreviations on pt](https://rentry.co/pt-abbreviations) <br>
 
 ## other things 
 ♡ [basic dni](https://dni-criteria.carrd.co/) <br>
