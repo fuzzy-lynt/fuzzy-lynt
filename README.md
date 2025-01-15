@@ -14,7 +14,7 @@
 
 𓊆:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅𓊇
 ## pony town info
-♡ different styles but i almost always have this github linked <br>
+♡ different styles but i always have this github linked <br>
 ♡ mostly afk or offtab on pt <br>
 ♡ do not copy my skins 1:1! inspiration is fine, don´t be afraid to ask for guidance <br>
 
