@@ -2,7 +2,6 @@
 
 # lynton - he/him - adult (year '03)
 ♡ just existing <br>
-♡ mostly afk or offtab on pt <br>
 ♡ i´m an adult, so anyone younger than 18 *do NOT interact or follow*. /gen srs <br> (i do not want to be responsible for you. i´m not your parent or older sibling.) <br>
 
 𓊆:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅𓊇
@@ -14,14 +13,14 @@
 𓊆:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅𓊇
 ## pony town info
 ♡ different styles but i almost always have this github linked <br>
-♡ if zzz in game i am afk <br>
+♡ mostly afk or offtab on pt <br>
 ♡ do not copy my skins 1:1! inspiration is fine, don´t be afraid to ask for guidance <br>
 
 ## other things 
 ♡ [basic dni](https://dni-criteria.carrd.co/)
-♡ no triggers, talk freely <br>
+♡ no triggers, talk freely - fine with questions and flirting (if you´re an adult) <br>
 ♡ forgetful <br>
 ♡ little speech quirks <br>
-♡ pls communicate
+♡ pls communicate and ask before venting/ranting 
 
 ### 𓊆:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅𓊇 feel free to interact! or don´t, we don´t care. \[AS\] 𓊆:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅𓊇
