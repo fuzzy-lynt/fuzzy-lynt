@@ -3,9 +3,11 @@
 # lynton - he/him - adult (year '03)
 ♡ just existing <br>
 ♡ i´m an adult, so anyone younger than 18 *do NOT interact or follow*. /gen srs <br> (i do not want to be responsible for you. i´m not your parent or older sibling.) <br>
+♡ kins: Aizawa (BNHA) | Augustine (CF) | Cherie (CC) | Crush (CC) | Hiccup (HTTYD) | <br>| Collei | Kaeya | Kaveh | Sucrose | Traveler | Wanderer 
 
 𓊆:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅𓊇
 ## likes, comforts and interests
+𓆩♡𓆪 Xiao 𓆩♡𓆪 Boothill 𓆩♡𓆪 Crush 𓆩♡𓆪 Augustine 𓆩♡𓆪 Rody 𓆩♡𓆪 <br>
 ♡ cats, markiplier, any type of tea, my ocs <br>
 ♡ games - genshin, creatures of sonaria, sky, dead plate, cold front, a date with death, sso, <br> life is strange, assassins creed, big fish games, nintendogs & cats, the last guardian, minecraft, <br> spiritfarer, fnaf, powerwash sim, Talos Principle, tomodachi life, and more (feel free to ask) <br>
 ♡ other media - cherry crush, httyd, gravity falls, murder drones, mha, <br>
@@ -19,7 +21,7 @@
 ## other things 
 ♡ [basic dni](https://dni-criteria.carrd.co/) <br>
 ♡ no triggers, talk freely - fine with questions and flirting (if you´re an adult) <br>
-♡ forgetful <br>
+♡ quite forgetful <br>
 ♡ little speech quirks <br>
 ♡ pls communicate and ask before venting/ranting 
 
