@@ -1,6 +1,6 @@
 ### 𓊆:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅𓊇
 
-# lynton - he/him 
+# about me
 ♡ just existing <br>
 ♡ i´m an adult (year '03), so anyone younger than 18 *do NOT interact or follow*. /gen srs <br> (i do not want to be responsible for you. i´m not your parent or older sibling.) <br>
 ♡ kins: Aizawa (BNHA) | Augustine (CF) | Cherie (CC) | Crush (CC) | Hiccup (HTTYD) | <br>| Collei | Kaeya | Kaveh | Sucrose | Traveler | Wanderer |
