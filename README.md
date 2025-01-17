@@ -5,7 +5,7 @@
 ♡ i´m an adult (year '03), so anyone younger than 18 *do NOT interact or follow*. /gen srs <br> (i do not want to be responsible for you. i´m not your parent or older sibling.) <br>
 ♡ kins: Aizawa (BNHA) | Augustine (CF) | Cherie (CC) | Crush (CC) | Hiccup (HTTYD) | <br>| Collei | Kaeya | Kaveh | Sucrose | Traveler | Wanderer |
 
-𓊆:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅𓊇
+𓊆:̲̅:̲̅:̲̅\[AS\]̲̅:̲̅:̲̅:̲̅𓊇 
 ## $\color{lightblue}{likes, \space comforts \space and \space interests}$
 𓆩♡𓆪 Xiao 𓆩♡𓆪 Boothill 𓆩♡𓆪 Crush 𓆩♡𓆪 Augustine 𓆩♡𓆪 Rody 𓆩♡𓆪 <br>
 ♡ cats, markiplier, any type of tea, my ocs <br>
@@ -27,5 +27,4 @@
 ♡ little speech quirks <br>
 ♡ pls communicate and ask before venting/ranting 
 
-### 𓊆:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅𓊇 \[AS\] 𓊆:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅𓊇
-𓆩♡𓆪 [my idiot](https://rentry.co/idolish7-lover) 𓆩♡𓆪
+### 𓊆:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅𓊇 𓆩♡𓆪 [my idiot](https://rentry.co/idolish7-lover) 𓆩♡𓆪 𓊆:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅𓊇
