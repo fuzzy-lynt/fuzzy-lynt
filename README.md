@@ -10,7 +10,7 @@
 𓆩♡𓆪 Xiao 𓆩♡𓆪 Boothill 𓆩♡𓆪 Crush 𓆩♡𓆪 Augustine 𓆩♡𓆪 Rody 𓆩♡𓆪 <br>
 ♡ cats, markiplier, any type of tea, my ocs <br>
 ♡ games - genshin, creatures of sonaria, sky, dead plate, cold front, a date with death, sso, <br> life is strange, assassins creed, big fish games, nintendogs & cats, the last guardian, minecraft, <br> spiritfarer, fnaf, powerwash sim, Talos Principle, tomodachi life, and more (feel free to ask) <br>
-♡ other media - cherry crush, httyd, gravity falls, murder drones, mha, <br>
+♡ other media - cherry crush, httyd, gravity falls, murder drones, mha, wolfwalkers <br>
 
 𓊆:̲̅:̲̅:̲̅\[AS\]̲̅:̲̅:̲̅:̲̅𓊇 
 ## $\color{lightblue}{pony \space town \space info}$
