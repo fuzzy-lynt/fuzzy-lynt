@@ -1,1 +1,1 @@
-check out these [pictures of my cat](https://instagram.com/gaga_and_me) 
+click [here](https://instagram.com/gaga_and_me) for cat pictures
