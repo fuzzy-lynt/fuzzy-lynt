@@ -1,5 +1,3 @@
-@twistedface & @moonfalln my wives, @M3rinm3ow drags me into media, @KamenWukong is my segment/clone, 
-
 ### 🐾 **PT Info** 🐾 
 ✦ Different styles, but always "**fuzzy-lynt**" GitHub linked. <br/> 
 ✦ AFK/OffTab a lot - **Whisper to get attention.** <br/> 
