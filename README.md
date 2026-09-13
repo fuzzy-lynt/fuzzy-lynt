@@ -1,4 +1,4 @@
-### my wifi gets funky sometimes !! if i disappear feel free to leave a message on my strawpage or atabook
+#### my wifi gets funky sometimes !! if i disappear feel free to leave a message on my strawpage or atabook
 
 ### 🐾 **PT Info** 🐾 
 ✦ Different styles, but always "***fuzzy-lynt***" GitHub linked. <br/> 
